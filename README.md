@@ -2,8 +2,8 @@
 
 ##### ola bem vinaod ao meu livro de receitas
 
-- meu cu
-- teu cu
+- galinha ao molho pardo
+- bolinha de queijo
 
 
 
